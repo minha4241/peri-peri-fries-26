@@ -1,0 +1,1 @@
+lace the cooked fries on a rack on a baking sheet. Place in the warm oven, and while you cook, the other batches of fries are cooking. Once you are done with all the potatoes, remove them from the oven, tip into a bowl, and sprinkle with the peri-peri seasoning mix while they are still hot.

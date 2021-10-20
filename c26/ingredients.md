@@ -1,0 +1,1 @@
+paprika, ground ginger, ground cardamom, granulated garlic, granulated onion, cayenne pepper and salt
